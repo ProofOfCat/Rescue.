@@ -11,6 +11,9 @@ video.index:
 - [Worried Mother Cat trying to wake up her kitten but the poor kitten didn't respond!](https://youtu.be/ZAykjXU4L-w)
 - [Poor cat never believes her owner abandoned her in this situation, still waiting under a vehicle](https://youtu.be/1yAS9rWq3yU)
 - [The Mother Cat Was Struggling For Survive And Kitten's Cry for Help. A miracle happened](https://youtu.be/XMOMPSa-Jks)
+- [Motherless Kitten was Losing his Breath And No One Cared!](https://youtu.be/XR6Q9_J9C3k)
+- [Heavy Rain forced Mother Cat to Carry her kitten in Streets, but No One Opened the Door for Them!](https://youtu.be/-xzP2TMSoMQ)
+
 
 ## channel: [beemz mod](https://www.youtube.com/@beemzmod)
 index:

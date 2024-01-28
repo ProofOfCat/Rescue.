@@ -10,7 +10,7 @@ video.index:
 - [A dying cat covered in flies, living his last moments on the roadside but no one came to help him!](https://youtu.be/mSe3izIani4)
 - [Worried Mother Cat trying to wake up her kitten but the poor kitten didn't respond!](https://youtu.be/ZAykjXU4L-w)
 - [Poor cat never believes her owner abandoned her in this situation, still waiting under a vehicle](https://youtu.be/1yAS9rWq3yU)
-
+- [The Mother Cat Was Struggling For Survive And Kitten's Cry for Help. A miracle happened](https://youtu.be/XMOMPSa-Jks)
 
 ## channel: [beemz mod](https://www.youtube.com/@beemzmod)
 index:

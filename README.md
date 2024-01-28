@@ -25,6 +25,7 @@ index:
 ## channel: [Teddy Kitten - Rescue Center](https://www.youtube.com/@teddykitten-rescuecenter4637)
 index:
 - [A crying mother cat brought her dying kitten to a man. Just unbelieveble!](https://youtu.be/I837-92I4b0)
+- [Kittens abandoned by the roadside... They were left there to die.](https://youtu.be/I0VVTJs3_Lo)
 
 
 ## channel: [beemz mod](https://www.youtube.com/@beemzmod)

@@ -22,6 +22,11 @@ index:
 - [A Dying Cat Covered In Flies, Makes A Faint Cry For Help As Someone Passed By](https://youtu.be/-mVRM-_OyPE)
 
 
+## channel: [Teddy Kitten - Rescue Center](https://www.youtube.com/@teddykitten-rescuecenter4637)
+index:
+- [A crying mother cat brought her dying kitten to a man. Just unbelieveble!](https://youtu.be/I837-92I4b0)
+
+
 ## channel: [beemz mod](https://www.youtube.com/@beemzmod)
 index:
 - [Kittens cried for help trying to wake up her mother cat, but the poor mother cat did not respond](https://youtu.be/nsAFOj8aLZM)

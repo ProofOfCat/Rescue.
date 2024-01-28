@@ -16,6 +16,12 @@ video.index:
 - [Poor kittens ran everywhere to find their mother cat, but they didn't know she is no more!](https://youtu.be/8igfjarJlEI)
 - [Poor abandoned cat thinking help would never come, get a helping hand!](https://youtu.be/z6UBRbbTGKU)
 
+
+## channel: [Caring Animal Shelter](https://www.youtube.com/@caringanimalshelter)
+index:
+- [A Dying Cat Covered In Flies, Makes A Faint Cry For Help As Someone Passed By](https://youtu.be/-mVRM-_OyPE)
+
+
 ## channel: [beemz mod](https://www.youtube.com/@beemzmod)
 index:
 - [Kittens cried for help trying to wake up her mother cat, but the poor mother cat did not respond](https://youtu.be/nsAFOj8aLZM)

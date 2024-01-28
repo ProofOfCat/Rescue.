@@ -13,7 +13,8 @@ video.index:
 - [The Mother Cat Was Struggling For Survive And Kitten's Cry for Help. A miracle happened](https://youtu.be/XMOMPSa-Jks)
 - [Motherless Kitten was Losing his Breath And No One Cared!](https://youtu.be/XR6Q9_J9C3k)
 - [Heavy Rain forced Mother Cat to Carry her kitten in Streets, but No One Opened the Door for Them!](https://youtu.be/-xzP2TMSoMQ)
-
+- [Poor kittens ran everywhere to find their mother cat, but they didn't know she is no more!](https://youtu.be/8igfjarJlEI)
+- [Poor abandoned cat thinking help would never come, get a helping hand!](https://youtu.be/z6UBRbbTGKU)
 
 ## channel: [beemz mod](https://www.youtube.com/@beemzmod)
 index:
